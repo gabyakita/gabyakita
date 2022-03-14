@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gabyakita
+
 - Tenho interesse em conhecer coisas novas
 - Atualmente estou aprendendo ✨ Programção ✨ 
 - Estou procurando colaborar em Engenharia da Computação 
