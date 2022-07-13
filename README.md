@@ -1,6 +1,6 @@
 
 - Tenho interesse em conhecer coisas novas
-- Atualmente estou aprendendo ✨ Programção ✨ 
+- Atualmente estou aprendendo ✨ Programação ✨ 
 - Estou procurando colaborar em Engenharia da Computação 
 - Email de contato: gabrielly.akita35@icloud.com
 
